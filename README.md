@@ -18,4 +18,4 @@ $ python3 main.py phone_number<br>
 - https://linktr.ee/doko1554
 
 # Special Thx :
-Jejaka Tutorial
+®SecxXx.iĐ
